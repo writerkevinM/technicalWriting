@@ -6,4 +6,4 @@ Thanks and regards Writer KevinM
 
 Email:strikerngethe@gmail.com
 
-WhatsApp: +25421257024
+WhatsApp: +254721257024
